@@ -19,7 +19,7 @@
 🌐 Feel free to connect with me for collaborations or just to chat!  
 
 😄 **Pronouns:**  
-🧑 **He/him** (totally and proudly **"el"**).  
+🧑 **He/him** (totally and proudly **"He"**).  
 
 ⚡ **Fun fact:**  
 💡 I love **optimizing my life** to the maximum with the least cost possible.  
